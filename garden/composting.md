@@ -25,4 +25,4 @@ Shred up these materials
 No meat or dairy products.
 
 - Source(s)
-  - [growitbuildit.com]([link1](https://growitbuildit.com/how-to-make-a-compost-pile/)https://growitbuildit.com/how-to-make-a-compost-pile/)
+  - [growitbuildit.com](https://growitbuildit.com/how-to-make-a-compost-pile/)
