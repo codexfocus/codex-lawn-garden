@@ -12,7 +12,7 @@ Turn the pile daily for the first two weeks, then every couple days for 40 or 50
 #### Green Materials
 - Kitchen scraps
 - grass clippings(using this turn pile daily for first two weeks)
-- cofffe frounds
+- coffee grounds
 - green yard waste
   
 #### Brown Materials
@@ -22,7 +22,7 @@ Shred up these materials
 - sawdust
 - dried leaves
 
-No meat or dairy
+No meat or dairy products.
 
 - Source(s)
   - [growitbuildit.com]([link1](https://growitbuildit.com/how-to-make-a-compost-pile/)https://growitbuildit.com/how-to-make-a-compost-pile/)
